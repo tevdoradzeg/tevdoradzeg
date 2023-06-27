@@ -6,4 +6,3 @@
 &nbsp;
 &nbsp;
 
-***SEE YOU SPACE COWBOY...***
